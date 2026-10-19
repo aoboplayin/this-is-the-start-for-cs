@@ -1,1 +1,1 @@
-# this-is-the-start-for-cs
+# this-is-the-start-for-cs and i gotta learn it all frfr
